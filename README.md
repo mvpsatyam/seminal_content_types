@@ -1,0 +1,1 @@
+# Seminal Content Types
